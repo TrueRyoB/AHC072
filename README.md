@@ -14,3 +14,5 @@
 
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">もうアフターコンテスト走るしかないよね</p>&mdash; True Araki (@TrueAraki) <a href="https://x.com/TrueAraki/status/2107057568665485810?ref_src=twsrc%5Etfw">October 5, 2026</a></blockquote>
+
+<img width="300" alt="image" src="https://github.com/user-attachments/assets/06837e2c-5f42-437d-bb47-875247f5ca88" />
